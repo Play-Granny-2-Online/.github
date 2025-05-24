@@ -5,6 +5,8 @@
 
 **Granny 2 Online** is back, and it's more terrifying, intense, and challenging than ever. In this **dark horror survival** experience, you’re trapped inside a creepy house with not one, but two killers — **Granny** and her even more savage accomplice, Grandpa. Your mission is simple yet spine-chilling: **escape** without making a sound… or suffer the consequences.
 
+## <a href="https://1kb.link/n5eAUI">👉 Click To Play Granny 2 Unblocked NOW 👈</a>
+
 This isn’t your average escape room. **Granny 2 Online** blends **puzzle-solving**, **stealth gameplay**, and **thrilling action** into one **epic horror adventure**. Creaking floorboards, hidden passages, and shadowy corners await you. Every second counts as you **search, unlock, and survive** in a house where danger lurks behind every door.
 
 ### **Game Features:**
